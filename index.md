@@ -39,7 +39,9 @@ Song-Goorii, Song ddaegurii, Song-gool, Song-chapchap is the most beautiful and 
 
 첫 번째, 
 ![KakaoTalk_20211216_164922914](https://user-images.githubusercontent.com/96555857/147177124-d0b6a899-87b3-4d7a-bf1e-2649997d1f35.png){: width="25%", height:"25%"}
+
 ![KakaoTalk_20211216_164918329](https://user-images.githubusercontent.com/96555857/147177129-80929582-3be5-4f88-aa14-b97d027ebccf.png){: width="25%", height:"25%"}
+
 ![KakaoTalk_20211216_164858355](https://user-images.githubusercontent.com/96555857/147177133-ec011f93-7501-452d-905f-1d77baac156c.png){: width="25%", height:"25%"}
 
 잘먹는 모습이 참 많이 사랑스러워. 먹는 모습을 보면 아... 내가 수니를 사랑하는구나. 정말 사랑스럽구나 얘는...
