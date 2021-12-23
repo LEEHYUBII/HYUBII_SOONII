@@ -37,7 +37,7 @@ Song-Goorii, Song ddaegurii, Song-gool, Song-chapchap is the most beautiful and 
 내가 자기를 사랑하는 이유는 참 많지만 몇가지 정리해보자면.
 
 첫 번째, 
-
+![ezgif com-gif-maker (4) (1)](https://user-images.githubusercontent.com/96555857/147197505-f4ee5d15-94cc-402a-9e35-3d3f0711cfd7.gif)
 ![KakaoTalk_20211216_164922914](https://user-images.githubusercontent.com/96555857/147177124-d0b6a899-87b3-4d7a-bf1e-2649997d1f35.png)
 ![KakaoTalk_20211216_164918329](https://user-images.githubusercontent.com/96555857/147177129-80929582-3be5-4f88-aa14-b97d027ebccf.png)
 ![KakaoTalk_20211216_164858355](https://user-images.githubusercontent.com/96555857/147177133-ec011f93-7501-452d-905f-1d77baac156c.png)
@@ -52,10 +52,11 @@ Song-Goorii, Song ddaegurii, Song-gool, Song-chapchap is the most beautiful and 
 ![KakaoTalk_20211223_111744163](https://user-images.githubusercontent.com/96555857/147177646-c9eacc3e-0150-4b29-a5db-068fc5131340.jpg)
 ![KakaoTalk_20211223_111639408](https://user-images.githubusercontent.com/96555857/147177632-35e99a88-35ac-4e0f-bdc3-adcb6218f8a9.jpg)
 
-먹는 모습 아주 사랑스러워. 정말 항상 맛있는것만 멕여주고 싶어. 그러면 항상 행복하겠지..??
+다시 말하지만, 먹는 모습 아주 사랑스러워. 정말 항상 맛있는것만 멕여주고 싶어. 그러면 항상 행복하겠지..??
 
 세 번째,
 
+![gif (1)](https://user-images.githubusercontent.com/96555857/147197467-f9ddc175-44fa-4926-8b53-c92631a1ef2f.gif)
 ![KakaoTalk_20211214_120543126 (1)](https://user-images.githubusercontent.com/96555857/147180235-cc044d74-07e2-4d7b-850a-e1dd89cd3fa9.jpg)
 ![눈](https://user-images.githubusercontent.com/96555857/147190573-c61bffaf-2568-4c8d-96d9-3ffe575ec625.png)
 
@@ -83,7 +84,6 @@ Song-Goorii, Song ddaegurii, Song-gool, Song-chapchap is the most beautiful and 
 내가 구냥 이쁜 바보를 좋아하는지를 알게 해줬어. 자기는 내가 본 사람중 가장 이쁜 바보같은 여자얌.
 
 여섯 번째,
-
 ![KakaoTalk_20211223_111637346](https://user-images.githubusercontent.com/96555857/147180527-d99d341c-6c94-4983-8e12-a87cacebf918.jpg)
 ![KakaoTalk_20211223_111637749](https://user-images.githubusercontent.com/96555857/147180530-4a2f45ee-9b49-4287-9251-3409c91a065e.jpg)
 ![KakaoTalk_20211223_145747599](https://user-images.githubusercontent.com/96555857/147195262-6a4fd5c8-7f0a-4aae-8503-343c26842787.jpg)
