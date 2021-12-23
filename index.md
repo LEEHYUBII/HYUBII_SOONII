@@ -1,7 +1,7 @@
-![KakaoTalk_20211220_131423563](https://user-images.githubusercontent.com/96555857/147175957-8485b3b4-1a00-4bf4-b144-9b736affcc02.jpg){: width="25%", height:"25%"}
+![KakaoTalk_20211220_131423563](https://user-images.githubusercontent.com/96555857/147175957-8485b3b4-1a00-4bf4-b144-9b736affcc02.jpg){: width="50%", height:"50%"}
 
 ## Welcome to Hyubii world
-![KakaoTalk_20211214_020724997](https://user-images.githubusercontent.com/96555857/147176190-397746d8-9deb-4981-838e-bece9e5af95f.jpg){: width="25%", height:"25%"}
+![KakaoTalk_20211214_020724997](https://user-images.githubusercontent.com/96555857/147176190-397746d8-9deb-4981-838e-bece9e5af95f.jpg){: width="50%", height:"50%"}
 
 You can use HYUBII the Daejeon to be happy in real world, not 2D world.
 
@@ -9,7 +9,7 @@ Whenever you want to have fun, just calling Hyubii is all you need.
 
 
 
-![KakaoTalk_20211218_153859725](https://user-images.githubusercontent.com/96555857/147176221-a73770f0-cf3a-4635-a269-34a9a5066270.jpg){: width="25%", height:"25%"}
+![KakaoTalk_20211218_153859725](https://user-images.githubusercontent.com/96555857/147176221-a73770f0-cf3a-4635-a269-34a9a5066270.jpg){: width="50%", height:"50%"}
 
 ### Song-gurii, the Gucci napchie-beom
 
@@ -21,7 +21,6 @@ Song-Goorii, Song ddaegurii, Song-gool, Song-chapchap is the most beautiful and 
 
 ![KakaoTalk_20211218_154350077](https://user-images.githubusercontent.com/96555857/147176301-99625575-c4bc-40cc-830c-c2911af8c706.jpg)
 # 영어는 못해먹겠다
-
 
 ### Again, Song-gurii, the Gucci napchie-beom
 ![KakaoTalk_20211217_172735499](https://user-images.githubusercontent.com/96555857/147176889-bfee7dad-0a3d-4c70-a734-2ab31376a9d2.jpg){: width="50%", height:"50%"}
@@ -47,12 +46,12 @@ Song-Goorii, Song ddaegurii, Song-gool, Song-chapchap is the most beautiful and 
 잘먹는 모습이 참 많이 사랑스러워. 먹는 모습을 보면 아... 내가 수니를 사랑하는구나. 정말 사랑스럽구나 얘는...
 이렇게 느껴
 
+
 두 번째, 
 
 ![KakaoTalk_20211218_154341718](https://user-images.githubusercontent.com/96555857/147177215-3a541b35-873b-470f-80e8-0ad218d5d957.jpg){: width="25%", height:"25%"}
 ![KakaoTalk_20211223_111744163](https://user-images.githubusercontent.com/96555857/147177646-c9eacc3e-0150-4b29-a5db-068fc5131340.jpg){: width="25%", height:"25%"}
 ![KakaoTalk_20211223_111639408](https://user-images.githubusercontent.com/96555857/147177632-35e99a88-35ac-4e0f-bdc3-adcb6218f8a9.jpg){: width="25%", height:"25%"}
-https://user-images.githubusercontent.com/96555857/147177231-0227d94b-5cf2-4f15-85f8-7127507f1f30.mp4{: width="25%", height:"25%"}
 
 
 
