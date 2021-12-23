@@ -75,17 +75,17 @@ Song-Goorii, Song ddaegurii, Song-gool, Song-chapchap is the most beautiful and 
 
 다섯 번째,
 
-![KakaoTalk_20211218_154211262](https://user-images.githubusercontent.com/96555857/147180410-0242a511-ea5f-4d92-82ae-926ad121a794.jpg){: width="25%", height:"25%"}
-![KakaoTalk_20211223_111422126](https://user-images.githubusercontent.com/96555857/147180419-8425bf7c-f5ce-40be-82c9-fd5ed2c5d8d5.jpg){: width="25%", height:"25%"}
-![화면 캡처 2021-12-23 114850](https://user-images.githubusercontent.com/96555857/147180460-314abe9d-bb97-44dd-9a3e-f0c197d4a1e2.png){: width="25%", height:"25%"}
-![KakaoTalk_20211220_023432818](https://user-images.githubusercontent.com/96555857/147180476-1bb98675-d438-4166-8cf1-7d84ee2da8e8.jpg){: width="25%", height:"25%"}
+![123](https://user-images.githubusercontent.com/96555857/147190670-79c617c8-4408-40a6-b06f-04f068d05038.png)
+![KakaoTalk_20211223_111422126](https://user-images.githubusercontent.com/96555857/147180419-8425bf7c-f5ce-40be-82c9-fd5ed2c5d8d5.jpg)
+![화면 캡처 2021-12-23 114850](https://user-images.githubusercontent.com/96555857/147180460-314abe9d-bb97-44dd-9a3e-f0c197d4a1e2.png)
+![KakaoTalk_20211220_023432818](https://user-images.githubusercontent.com/96555857/147180476-1bb98675-d438-4166-8cf1-7d84ee2da8e8.jpg)
 
 내가 구냥 이쁜 바보를 좋아하는지를 알게 해줬어. 자기는 내가 본 사람중 가장 이쁜 바보같은 여자얌.
 
 여섯 번째,
 
-![KakaoTalk_20211223_111637346](https://user-images.githubusercontent.com/96555857/147180527-d99d341c-6c94-4983-8e12-a87cacebf918.jpg){: width="25%", height:"25%"}
-![KakaoTalk_20211223_111637749](https://user-images.githubusercontent.com/96555857/147180530-4a2f45ee-9b49-4287-9251-3409c91a065e.jpg){: width="25%", height:"25%"}
+![KakaoTalk_20211223_111637346](https://user-images.githubusercontent.com/96555857/147180527-d99d341c-6c94-4983-8e12-a87cacebf918.jpg){: width="50%", height:"50%"}
+![KakaoTalk_20211223_111637749](https://user-images.githubusercontent.com/96555857/147180530-4a2f45ee-9b49-4287-9251-3409c91a065e.jpg){: width="50%", height:"50%"}
 
 
 나를 사랑해주고 사랑스럽게 봐줘. 뭔짓을 해도 사랑스럽게 봐주겠지..지금처럼..??
@@ -105,7 +105,21 @@ Song-Goorii, Song ddaegurii, Song-gool, Song-chapchap is the most beautiful and 
 
 
 
-## Welcome to Hyubii world!!!!!
+## Again, Welcome to Hyubii world!!!!!
+![1234](https://user-images.githubusercontent.com/96555857/147190829-e2300ed3-1acf-4ccb-97e5-87520e1e99cf.png)
+
+
+## NOPE!!!! Welcome to Hyubii-Soonii world!!!!!
+![KakaoTalk_20211223_111638111](https://user-images.githubusercontent.com/96555857/147190845-93519fee-bbd2-4934-9837-2e1192a73544.jpg)
+
+
+
+그러면...........
+이제...
+정말로..
+![KakaoTalk_20211223_111640126](https://user-images.githubusercontent.com/96555857/147190869-9f0e745d-5362-4b75-a467-ff2dc9b9984b.jpg)
+
+
 **빠입빠이!!!**
 
 
