@@ -51,7 +51,6 @@ Song-Goorii, Song ddaegurii, Song-gool, Song-chapchap is the most beautiful and 
 
 ![KakaoTalk_20211218_154341718](https://user-images.githubusercontent.com/96555857/147177215-3a541b35-873b-470f-80e8-0ad218d5d957.jpg)
 ![KakaoTalk_20211223_111744163](https://user-images.githubusercontent.com/96555857/147177646-c9eacc3e-0150-4b29-a5db-068fc5131340.jpg)
-![KakaoTalk_20211223_111639408](https://user-images.githubusercontent.com/96555857/147177632-35e99a88-35ac-4e0f-bdc3-adcb6218f8a9.jpg)
 
 다시 말하지만, 먹는 모습 아주 사랑스러워. 정말 항상 맛있는것만 멕여주고 싶어. 그러면 항상 행복하겠지..??
 
