@@ -95,8 +95,13 @@ Song-Goorii, Song ddaegurii, Song-gool, Song-chapchap is the most beautiful and 
 자기야
 항상 사랑하구, 다음에는 더 고퀄로 한번 준비해볼게..
 
+꼭 기억해주길 바라는게 있다면, 
+항상 사랑하고 소중하게 생각해 자기...
+올 한 해를 전부를 함께 보내진 못했지만 남아있는 모든 날을 함께 했으면 좋겠어.
 
 사랑해
+
+그리구
 
 메리 크리스마스야!!!!
 
