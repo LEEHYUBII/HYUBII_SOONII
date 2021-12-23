@@ -23,7 +23,7 @@ Song-Goorii, Song ddaegurii, Song-gool, Song-chapchap is the most beautiful and 
 # 영어는 못해먹겠다
 
 ### Again, Song-gurii, the Gucci napchie-beom
-![KakaoTalk_20211217_172735499](https://user-images.githubusercontent.com/96555857/147176889-bfee7dad-0a3d-4c70-a734-2ab31376a9d2.jpg)
+![KakaoTalk_20211217_172735499](https://user-images.githubusercontent.com/96555857/147176889-bfee7dad-0a3d-4c70-a734-2ab31376a9d2.jpg){: width="50%", height:"50%"}
 
 송굴챱챱 송굴챱
 나에게 송구리는, 내 여자친구이자, 베프, 그리고 우리 구찌 새언니, 마지막으로 언젠가는 여친이 아닌 다른 존재가 되어주겠지...?
