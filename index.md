@@ -67,7 +67,7 @@ Song-Goorii, Song ddaegurii, Song-gool, Song-chapchap is the most beautiful and 
 네 번째,
 
 ![KakaoTalk_20211223_111639408](https://user-images.githubusercontent.com/96555857/147180312-e3df921e-c34b-4426-bb02-3d5ff76b0773.jpg)
-![KakaoTalk_20211220_132358090](https://user-images.githubusercontent.com/96555857/147180327-d7f8ca71-dfaf-46ea-9eb2-7868bf001e2a.jpg)
+![KakaoTalk_20211220_132358090](https://user-images.githubusercontent.com/96555857/147180327-d7f8ca71-dfaf-46ea-9eb2-7868bf001e2a.jpg){: width="200%", height:"200%"}
 
 
 웃는 모습이 너무 이쁘구, 사랑스럽구, 바라보는 사람도 행복하게 해줘. 
