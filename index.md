@@ -38,9 +38,7 @@ Song-Goorii, Song ddaegurii, Song-gool, Song-chapchap is the most beautiful and 
 
 첫 번째, 
 ![KakaoTalk_20211216_164922914](https://user-images.githubusercontent.com/96555857/147177124-d0b6a899-87b3-4d7a-bf1e-2649997d1f35.png){: width="25%", height:"25%"}
-
 ![KakaoTalk_20211216_164918329](https://user-images.githubusercontent.com/96555857/147177129-80929582-3be5-4f88-aa14-b97d027ebccf.png){: width="25%", height:"25%"}
-
 ![KakaoTalk_20211216_164858355](https://user-images.githubusercontent.com/96555857/147177133-ec011f93-7501-452d-905f-1d77baac156c.png){: width="25%", height:"25%"}
 
 잘먹는 모습이 참 많이 사랑스러워. 먹는 모습을 보면 아... 내가 수니를 사랑하는구나. 정말 사랑스럽구나 얘는...
@@ -53,26 +51,60 @@ Song-Goorii, Song ddaegurii, Song-gool, Song-chapchap is the most beautiful and 
 ![KakaoTalk_20211223_111744163](https://user-images.githubusercontent.com/96555857/147177646-c9eacc3e-0150-4b29-a5db-068fc5131340.jpg){: width="25%", height:"25%"}
 ![KakaoTalk_20211223_111639408](https://user-images.githubusercontent.com/96555857/147177632-35e99a88-35ac-4e0f-bdc3-adcb6218f8a9.jpg){: width="25%", height:"25%"}
 
+먹는 모습 아주 사랑스러워. 정말 항상 맛있는것만 멕여주고 싶어. 그러면 항상 행복하겠지..??
+
+세 번째,
+![KakaoTalk_20211214_120543126 (1)](https://user-images.githubusercontent.com/96555857/147180235-cc044d74-07e2-4d7b-850a-e1dd89cd3fa9.jpg){: width="25%", height:"25%"}
+![KakaoTalk_20211218_213400023_02](https://user-images.githubusercontent.com/96555857/147180264-41117e01-eb7f-4b72-a5b9-1ceb5d142b6f.jpg){: width="25%", height:"25%"}
 
 
-https://user-images.githubusercontent.com/96555857/147177615-2b2bd3d2-ae9e-4c68-8be4-15a6088a1479.mp4
+멀리서 봐도 이쁘구, 사랑스럽구, 너무 잘보여.
+한 눈에 딱 들어와.쪼꼬매서 그런건가. 싶다가도 그냥 내가 본 사람중에서 가장 이쁜 사람이야.
+
+
+네 번째,
+![KakaoTalk_20211223_111639408](https://user-images.githubusercontent.com/96555857/147180312-e3df921e-c34b-4426-bb02-3d5ff76b0773.jpg){: width="25%", height:"25%"}
+![KakaoTalk_20211220_132358090](https://user-images.githubusercontent.com/96555857/147180327-d7f8ca71-dfaf-46ea-9eb2-7868bf001e2a.jpg){: width="25%", height:"25%"}
+
+
+웃는 모습이 너무 이쁘구, 사랑스럽구, 바라보는 사람도 행복하게 해줘. 
+이게 바로 헤바인가..
+
+다섯 번째,
+
+![KakaoTalk_20211218_154211262](https://user-images.githubusercontent.com/96555857/147180410-0242a511-ea5f-4d92-82ae-926ad121a794.jpg){: width="25%", height:"25%"}
+![KakaoTalk_20211223_111422126](https://user-images.githubusercontent.com/96555857/147180419-8425bf7c-f5ce-40be-82c9-fd5ed2c5d8d5.jpg){: width="25%", height:"25%"}
+![화면 캡처 2021-12-23 114850](https://user-images.githubusercontent.com/96555857/147180460-314abe9d-bb97-44dd-9a3e-f0c197d4a1e2.png){: width="25%", height:"25%"}
+![KakaoTalk_20211220_023432818](https://user-images.githubusercontent.com/96555857/147180476-1bb98675-d438-4166-8cf1-7d84ee2da8e8.jpg){: width="25%", height:"25%"}
+
+내가 구냥 이쁜 바보를 좋아하는지를 알게 해줬어. 자기는 내가 본 사람중 가장 이쁜 바보같은 여자얌.
+
+여섯 번째,
+
+![KakaoTalk_20211223_111637346](https://user-images.githubusercontent.com/96555857/147180527-d99d341c-6c94-4983-8e12-a87cacebf918.jpg){: width="25%", height:"25%"}
+![KakaoTalk_20211223_111637749](https://user-images.githubusercontent.com/96555857/147180530-4a2f45ee-9b49-4287-9251-3409c91a065e.jpg){: width="25%", height:"25%"}
+
+
+나를 사랑해주고 사랑스럽게 봐줘. 뭔짓을 해도 사랑스럽게 봐주겠지..지금처럼..??
+
+자기야
+항상 사랑하구, 다음에는 더 고퀄로 한번 준비해볼게..
+
+
+사랑해
+
+메리 크리스마스야!!!!
+
+
+![KakaoTalk_20211223_111638438](https://user-images.githubusercontent.com/96555857/147180585-47e1cc20-2981-46ac-ad67-ebea11645551.jpg)
+
+![KakaoTalk_20211223_111638754](https://user-images.githubusercontent.com/96555857/147180597-546fa370-9cbf-4a13-810e-35908f36a7bb.jpg)
 
 
 
-1. Numbered
-2. List
+## Welcome to Hyubii world!!!!!
+**빠입빠이!!!**
 
-**Bold** and _Italic_ and `Code` text
 
-[Link](url) and ![KakaoTalk_20211220_131423563](src)
-```
 
-For more details see [Basic writing and formatting syntax](https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/LEEHYUBII/HYUBII_SOONII/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+![KakaoTalk_20211220_125730303](https://user-images.githubusercontent.com/96555857/147180663-131d1741-0621-478f-8067-813d36f5c726.jpg)
