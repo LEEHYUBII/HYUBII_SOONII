@@ -37,7 +37,8 @@ Song-Goorii, Song ddaegurii, Song-gool, Song-chapchap is the most beautiful and 
 내가 자기를 사랑하는 이유는 참 많지만 몇가지 정리해보자면.
 
 첫 번째, 
-![ezgif com-gif-maker (4) (1)](https://user-images.githubusercontent.com/96555857/147197505-f4ee5d15-94cc-402a-9e35-3d3f0711cfd7.gif)
+
+![ezgif com-gif-maker (4) (1)](https://user-images.githubusercontent.com/96555857/147197505-f4ee5d15-94cc-402a-9e35-3d3f0711cfd7.gif){: width="200%", height:"200%"}
 ![KakaoTalk_20211216_164922914](https://user-images.githubusercontent.com/96555857/147177124-d0b6a899-87b3-4d7a-bf1e-2649997d1f35.png)
 ![KakaoTalk_20211216_164918329](https://user-images.githubusercontent.com/96555857/147177129-80929582-3be5-4f88-aa14-b97d027ebccf.png)
 ![KakaoTalk_20211216_164858355](https://user-images.githubusercontent.com/96555857/147177133-ec011f93-7501-452d-905f-1d77baac156c.png)
@@ -56,7 +57,7 @@ Song-Goorii, Song ddaegurii, Song-gool, Song-chapchap is the most beautiful and 
 
 세 번째,
 
-![gif (1)](https://user-images.githubusercontent.com/96555857/147197467-f9ddc175-44fa-4926-8b53-c92631a1ef2f.gif)
+![gif (1)](https://user-images.githubusercontent.com/96555857/147197467-f9ddc175-44fa-4926-8b53-c92631a1ef2f.gif){: width="200%", height:"200%"}
 ![KakaoTalk_20211214_120543126 (1)](https://user-images.githubusercontent.com/96555857/147180235-cc044d74-07e2-4d7b-850a-e1dd89cd3fa9.jpg)
 ![눈](https://user-images.githubusercontent.com/96555857/147190573-c61bffaf-2568-4c8d-96d9-3ffe575ec625.png)
 
