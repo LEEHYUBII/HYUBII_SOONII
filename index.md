@@ -86,6 +86,8 @@ Song-Goorii, Song ddaegurii, Song-gool, Song-chapchap is the most beautiful and 
 
 ![KakaoTalk_20211223_111637346](https://user-images.githubusercontent.com/96555857/147180527-d99d341c-6c94-4983-8e12-a87cacebf918.jpg)
 ![KakaoTalk_20211223_111637749](https://user-images.githubusercontent.com/96555857/147180530-4a2f45ee-9b49-4287-9251-3409c91a065e.jpg)
+![KakaoTalk_20211223_145747599](https://user-images.githubusercontent.com/96555857/147195262-6a4fd5c8-7f0a-4aae-8503-343c26842787.jpg)
+![KakaoTalk_20211223_145747599_01](https://user-images.githubusercontent.com/96555857/147195272-3a9f2299-a705-427c-8fd5-66ad899e83ca.jpg)
 
 
 나를 사랑해주고 사랑스럽게 봐줘. 뭔짓을 해도 사랑스럽게 봐주겠지..지금처럼..??
