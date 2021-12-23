@@ -1,7 +1,7 @@
-![KakaoTalk_20211220_131423563](https://user-images.githubusercontent.com/96555857/147175957-8485b3b4-1a00-4bf4-b144-9b736affcc02.jpg)
+![KakaoTalk_20211220_131423563](https://user-images.githubusercontent.com/96555857/147175957-8485b3b4-1a00-4bf4-b144-9b736affcc02.jpg){: width="25%", height:"25%"}
 
 ## Welcome to Hyubii world
-![KakaoTalk_20211214_020724997](https://user-images.githubusercontent.com/96555857/147176190-397746d8-9deb-4981-838e-bece9e5af95f.jpg)
+![KakaoTalk_20211214_020724997](https://user-images.githubusercontent.com/96555857/147176190-397746d8-9deb-4981-838e-bece9e5af95f.jpg){: width="25%", height:"25%"}
 
 You can use HYUBII the Daejeon to be happy in real world, not 2D world.
 
@@ -9,7 +9,7 @@ Whenever you want to have fun, just calling Hyubii is all you need.
 
 
 
-![KakaoTalk_20211218_153859725](https://user-images.githubusercontent.com/96555857/147176221-a73770f0-cf3a-4635-a269-34a9a5066270.jpg)
+![KakaoTalk_20211218_153859725](https://user-images.githubusercontent.com/96555857/147176221-a73770f0-cf3a-4635-a269-34a9a5066270.jpg){: width="25%", height:"25%"}
 
 ### Song-gurii, the Gucci napchie-beom
 
