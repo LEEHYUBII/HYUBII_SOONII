@@ -23,7 +23,7 @@ Song-Goorii, Song ddaegurii, Song-gool, Song-chapchap is the most beautiful and 
 # 영어는 못해먹겠다
 
 ### Again, Song-gurii, the Gucci napchie-beom
-![KakaoTalk_20211217_172735499](https://user-images.githubusercontent.com/96555857/147176889-bfee7dad-0a3d-4c70-a734-2ab31376a9d2.jpg){: width="50%", height:"50%"}
+![KakaoTalk_20211217_172735499](https://user-images.githubusercontent.com/96555857/147176889-bfee7dad-0a3d-4c70-a734-2ab31376a9d2.jpg)
 
 송굴챱챱 송굴챱
 나에게 송구리는, 내 여자친구이자, 베프, 그리고 우리 구찌 새언니, 마지막으로 언젠가는 여친이 아닌 다른 존재가 되어주겠지...?
@@ -38,9 +38,9 @@ Song-Goorii, Song ddaegurii, Song-gool, Song-chapchap is the most beautiful and 
 
 첫 번째, 
 
-![KakaoTalk_20211216_164922914](https://user-images.githubusercontent.com/96555857/147177124-d0b6a899-87b3-4d7a-bf1e-2649997d1f35.png){: width="30%", height:"30%"}
-![KakaoTalk_20211216_164918329](https://user-images.githubusercontent.com/96555857/147177129-80929582-3be5-4f88-aa14-b97d027ebccf.png){: width="25%", height:"25%"}
-![KakaoTalk_20211216_164858355](https://user-images.githubusercontent.com/96555857/147177133-ec011f93-7501-452d-905f-1d77baac156c.png){: width="30%", height:"30%"}
+![KakaoTalk_20211216_164922914](https://user-images.githubusercontent.com/96555857/147177124-d0b6a899-87b3-4d7a-bf1e-2649997d1f35.png)
+![KakaoTalk_20211216_164918329](https://user-images.githubusercontent.com/96555857/147177129-80929582-3be5-4f88-aa14-b97d027ebccf.png)
+![KakaoTalk_20211216_164858355](https://user-images.githubusercontent.com/96555857/147177133-ec011f93-7501-452d-905f-1d77baac156c.png)
 
 잘먹는 모습이 참 많이 사랑스러워. 먹는 모습을 보면 아... 내가 수니를 사랑하는구나. 정말 사랑스럽구나 얘는...
 이렇게 느껴
@@ -48,9 +48,9 @@ Song-Goorii, Song ddaegurii, Song-gool, Song-chapchap is the most beautiful and 
 
 두 번째, 
 
-![KakaoTalk_20211218_154341718](https://user-images.githubusercontent.com/96555857/147177215-3a541b35-873b-470f-80e8-0ad218d5d957.jpg){: width="25%", height:"25%"}
-![KakaoTalk_20211223_111744163](https://user-images.githubusercontent.com/96555857/147177646-c9eacc3e-0150-4b29-a5db-068fc5131340.jpg){: width="40%", height:"40%"}
-![KakaoTalk_20211223_111639408](https://user-images.githubusercontent.com/96555857/147177632-35e99a88-35ac-4e0f-bdc3-adcb6218f8a9.jpg){: width="40%", height:"40%"}
+![KakaoTalk_20211218_154341718](https://user-images.githubusercontent.com/96555857/147177215-3a541b35-873b-470f-80e8-0ad218d5d957.jpg)
+![KakaoTalk_20211223_111744163](https://user-images.githubusercontent.com/96555857/147177646-c9eacc3e-0150-4b29-a5db-068fc5131340.jpg)
+![KakaoTalk_20211223_111639408](https://user-images.githubusercontent.com/96555857/147177632-35e99a88-35ac-4e0f-bdc3-adcb6218f8a9.jpg)
 
 먹는 모습 아주 사랑스러워. 정말 항상 맛있는것만 멕여주고 싶어. 그러면 항상 행복하겠지..??
 
@@ -84,8 +84,8 @@ Song-Goorii, Song ddaegurii, Song-gool, Song-chapchap is the most beautiful and 
 
 여섯 번째,
 
-![KakaoTalk_20211223_111637346](https://user-images.githubusercontent.com/96555857/147180527-d99d341c-6c94-4983-8e12-a87cacebf918.jpg){: width="50%", height:"50%"}
-![KakaoTalk_20211223_111637749](https://user-images.githubusercontent.com/96555857/147180530-4a2f45ee-9b49-4287-9251-3409c91a065e.jpg){: width="50%", height:"50%"}
+![KakaoTalk_20211223_111637346](https://user-images.githubusercontent.com/96555857/147180527-d99d341c-6c94-4983-8e12-a87cacebf918.jpg)
+![KakaoTalk_20211223_111637749](https://user-images.githubusercontent.com/96555857/147180530-4a2f45ee-9b49-4287-9251-3409c91a065e.jpg)
 
 
 나를 사랑해주고 사랑스럽게 봐줘. 뭔짓을 해도 사랑스럽게 봐주겠지..지금처럼..??
@@ -115,9 +115,16 @@ Song-Goorii, Song ddaegurii, Song-gool, Song-chapchap is the most beautiful and 
 
 
 그러면...........
-이제...
-정말로..
+
 ![KakaoTalk_20211223_111640126](https://user-images.githubusercontent.com/96555857/147190869-9f0e745d-5362-4b75-a467-ff2dc9b9984b.jpg)
+
+이제....
+
+![KakaoTalk_20211223_111640126](https://user-images.githubusercontent.com/96555857/147191134-e29446c2-c3c2-4f24-8643-102a39616290.jpg)
+...
+
+정말로..
+![KakaoTalk_20211223_111640394](https://user-images.githubusercontent.com/96555857/147191152-5d1261b7-9091-400c-9938-3ece2fc1b0cf.jpg)
 
 
 **빠입빠이!!!**
