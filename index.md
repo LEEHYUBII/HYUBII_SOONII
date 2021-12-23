@@ -77,7 +77,6 @@ Song-Goorii, Song ddaegurii, Song-gool, Song-chapchap is the most beautiful and 
 다섯 번째,
 
 ![123](https://user-images.githubusercontent.com/96555857/147190670-79c617c8-4408-40a6-b06f-04f068d05038.png)
-![KakaoTalk_20211223_111422126](https://user-images.githubusercontent.com/96555857/147180419-8425bf7c-f5ce-40be-82c9-fd5ed2c5d8d5.jpg)
 ![화면 캡처 2021-12-23 114850](https://user-images.githubusercontent.com/96555857/147180460-314abe9d-bb97-44dd-9a3e-f0c197d4a1e2.png)
 ![KakaoTalk_20211220_023432818](https://user-images.githubusercontent.com/96555857/147180476-1bb98675-d438-4166-8cf1-7d84ee2da8e8.jpg)
 
