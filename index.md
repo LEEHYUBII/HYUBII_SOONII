@@ -1,19 +1,31 @@
+![KakaoTalk_20211220_131423563](https://user-images.githubusercontent.com/96555857/147175957-8485b3b4-1a00-4bf4-b144-9b736affcc02.jpg)
+
 ## Welcome to Hyubii world
+![KakaoTalk_20211214_020724997](https://user-images.githubusercontent.com/96555857/147176190-397746d8-9deb-4981-838e-bece9e5af95f.jpg)
 
 You can use HYUBII the Daejeon to be happy in real world, not 2D world.
 
 Whenever you want to have fun, just calling Hyubii is all you need. 
 
-### Song-gurii
+
+
+![KakaoTalk_20211218_153859725](https://user-images.githubusercontent.com/96555857/147176221-a73770f0-cf3a-4635-a269-34a9a5066270.jpg)
+
+### Song-gurii, the Gucci napchie-beom
 
 Song-Goorii, Song ddaegurii, Song-gool, Song-chapchap is the most beautiful and light person ever, and she is an adult, not a baby. Only for huibii, she can be a baby.
 
-# Header 1
-## Header 2
-### Header 3
 
-- Bulleted
-- List
+
+
+
+![KakaoTalk_20211218_154350077](https://user-images.githubusercontent.com/96555857/147176301-99625575-c4bc-40cc-830c-c2911af8c706.jpg)
+# 영어는 못해먹겠다
+
+
+### Again, Song-gurii, the Gucci napchie-beom
+
+송굴챱챱
 
 1. Numbered
 2. List
